@@ -1,0 +1,2 @@
+# capaEscuridao
+capaEscuridao
